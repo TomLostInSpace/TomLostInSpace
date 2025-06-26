@@ -1,4 +1,4 @@
-Hi there! I'm TomLostInSpace, a 24yo italian guy
+Hi there! I'm TomLostInSpace, a 26yo italian guy
 looking to get (more) serious about code!
 Thanks for visiting my profile, if you want
 to contact me to work on something feel free 
